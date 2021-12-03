@@ -1,1 +1,1 @@
-# San-Diego-State-Digital-Profile
+# San-Diego-State-Digital-Portfolio
